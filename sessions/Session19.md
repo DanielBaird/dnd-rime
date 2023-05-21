@@ -15,9 +15,7 @@ The entity is the source of the light and it approaches us, bringing with it how
 
 It pull out a jagged sword and summons pillars of ice from the ground that come to life and charge at us as ice mephits.
 
-Lucas juices Linton up with a Protection from Ice Jerks, etc etc
-
-Lucas fights the main guy and goes to 0; that's what they're here to achieve so they die themselves and everyone cleans up the mephits.
+Lucas fights the main guy and goes to 0. This seems to be the guy's main goal. The rest of the gang finish him off that round and everyone cleans up the mephits.
 
 We short-rest then head to the Blue Clam in Termalaine, enjoy a free dinner, and overlight at the Eastside. Doora ajar overnight?
 
@@ -44,7 +42,7 @@ Inside the lotter winner is chained up arguing with Markum. We find Duvessa in h
 
 Scramsax at the Northlook is happy to hear our stories and offers free room and board. Late that night Scramsax knocks on Lucas and Linton's door, there's someone asking for us.
 
-We all troop downstairs; our visitor is Verlain. She talks about the Acrand Brotherhood and how they're searching for arcane relics and locations. She notes we've already encountered D'zaan. She's after the city that the tower of netheril came from.
+We all troop downstairs; our visitor is Verlain. She talks about the Arcane Brotherhood and how they're searching for arcane relics and locations. She notes we've already encountered D'zaan. She's after the city that the tower of netheril came from.
 
 SHe tells us about a book (the Codecil of Auril(?)) with an incatation, the Rime of the Frost Maiden, that can split the glacier where the city lies.
 
