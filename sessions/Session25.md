@@ -15,7 +15,7 @@ The dragon arrives, cops a big fireball from a mage, and diverts to attack the m
 
 We realise the ballista itself is still okay and rush to fire it at the dragon. We hit and the dragon crashes dead into the frozen lake. The mages head over to recover the body, like a SHIELD operation.
 
-Luncas does some shit stirring and starts some anti-Naerth rumours, "A Speaker should speak for the whole town".
+Lucas does some shit stirring and starts some anti-Naerth rumours, "A Speaker should speak for the whole town".
 
 We head back to BS. We catch up with the inn-keeping brothers and other folk from Bremen. We shit-stir with the Bremen refugees a bit about how Naerth was willing to take support from us and the Arcane brotherhood, but weren't willing to offer suport to any refugees.
 
